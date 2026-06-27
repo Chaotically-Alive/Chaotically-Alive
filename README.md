@@ -1,7 +1,6 @@
-## Don't turn around If you hear a sound 
+## Don't turn around, If you hear a sound
 
-https://pin.it/16LiPIzvP
+<img width="640" height="668" alt="IMG_2118" src="https://github.com/user-attachments/assets/937220af-cc39-4ca7-809d-ae52f380ce07" />
 
-^fanart made by Clambuoyance on Tumblr!^
 
-## It's just my heart breaking~
+## It's just my heart breaking
