@@ -1,11 +1,27 @@
-## 𝒟ℴ𝓃’𝓉 𝓉𝓊𝓇𝓃 𝒶𝓇ℴ𝓊𝓃𝒹， 𝒾𝒻 𝓎ℴ𝓊 𝒽ℯ𝒶𝓇 𝒶 𝓈ℴ𝓊𝓃𝒹
+^*You know I talk too much*^
 
-<img width="640" height="668" alt="IMG_2118" src="https://github.com/user-attachments/assets/937220af-cc39-4ca7-809d-ae52f380ce07" />
+**haii! Welcome to my Git**
+
+**I hope you have an absolutely Crash day!**
+
+<img width="200" height="200" alt="IMG_2880" src="https://github.com/user-attachments/assets/5f84d90d-69be-49a8-8a0b-990147d49e57" />
 
 
-## ℐ𝓉’𝓈 𝒿𝓊𝓈𝓉 𝓂𝓎 𝒽ℯ𝒶𝓇𝓉 𝒷𝓇ℯ𝒶𝓀𝒾𝓃𝑔 
+**Don’t be shy! say hi!**
 
-<img 
-     width="1199" height="1393" alt="IMG_2119" src="https://github.com/user-attachments/assets/e5581c5f-f7e9-48ff-83ab-e6db7720756b" />
+https://chaotic.atabook.org/
 
-（ℳ𝒶𝒹ℯ 𝒷𝓎 𝒞𝓁𝒶𝓂𝒷𝓊ℴ𝓎𝒶𝓃𝒸ℯ ℴ𝓃 𝒯𝓊𝓂𝒷𝓁𝓇！）
+
+~*Honey, come put your lips on mine and shut me up*~
+
+<img width="200" height="200" alt="IMG_2881" src="https://github.com/user-attachments/assets/87f69207-ed26-4959-9ef6-a9cd64277ade" />
+
+**If you see me on PT don’t be afraid to approach! I love making new friends! I’m usually seen in my Impulse/Red Robin/Red X pony!**
+
+^*we could blame it all on human nature*^
+
+<img width="1200" height="400" alt="IMG_2882" src="https://github.com/user-attachments/assets/e78e6f3b-0d34-4f3a-b322-755aa6ceefcf" />
+
+**Stay Crash! Hermano!**
+
+^*Stay cool it’s just a kiss, Oh why you gotta be so talkative?*^
