@@ -1,10 +1,11 @@
-^*You know I talk too much*^
+no^*You know I talk too much*^
 
 **haii! Welcome to my Git**
 
 **I hope you have an absolutely Crash day!**
 
-<img width="200" height="200" alt="IMG_2880" src="https://github.com/user-attachments/assets/5f84d90d-69be-49a8-8a0b-990147d49e57" />
+<img width="1080" height="1080" alt="IMG_3287" src="https://github.com/user-attachments/assets/09605924-7d21-442d-8e9f-286c97a62d19" />
+
 
 
 **Don’t be shy! say hi!**
@@ -14,13 +15,15 @@ https://chaotic.atabook.org/
 
 ~*Honey, come put your lips on mine and shut me up*~
 
-<img width="200" height="200" alt="IMG_2881" src="https://github.com/user-attachments/assets/87f69207-ed26-4959-9ef6-a9cd64277ade" />
+<img width="1187" height="1428" alt="IMG_3285" src="https://github.com/user-attachments/assets/676a8fbb-29c3-4105-9477-b9dc4d13060f" />
+
 
 **If you see me on PT don’t be afraid to approach! I love making new friends! I’m usually seen in my Impulse/Red Robin/Red X pony!**
 
 ^*we could blame it all on human nature*^
 
-<img width="1200" height="400" alt="IMG_2882" src="https://github.com/user-attachments/assets/e78e6f3b-0d34-4f3a-b322-755aa6ceefcf" />
+<img width="1200" height="675" alt="IMG_3286" src="https://github.com/user-attachments/assets/388e365e-c5e6-4b53-b088-b3ae9eb92502" />
+
 
 **Stay Crash! Hermano!**
 
